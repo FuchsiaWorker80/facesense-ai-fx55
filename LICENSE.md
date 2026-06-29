@@ -1,4 +1,4 @@
-# 
+# Exclusivo FaceSense guia. Baixe e instale com monitoramento em tempo real e configuração rápida — rápido, seguro e fácil de usar.
 
 
 
